@@ -1,0 +1,1 @@
+# zaslani_souboru_po_siti
